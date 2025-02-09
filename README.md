@@ -1,0 +1,2 @@
+# PhantomAI
+discord.gg/phantomai
